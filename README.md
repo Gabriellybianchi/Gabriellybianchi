@@ -1,0 +1,6 @@
+- 👋 oi, sou a Gabrielly, aluna da escola Roberto Bianchi e tenho 16 anos
+- 👀 sou interessada em musica
+- 🌱 gosto de comer coxinha
+- 💞️ nao estou em nenhum relaciomamento
+- 📫 @gabyy_2403
+- 😄 gosto de sair com os meus amigos
